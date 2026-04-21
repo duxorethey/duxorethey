@@ -1,6 +1,6 @@
 <div align="center">
 
-VEWN or FEI  ㅤㅤ8w7ㅤ+ㅤFREE BOUNDARIES
+VEWN or FEI u can also call me DUXOㅤㅤ8w7ㅤ+ㅤFREE BOUNDARIES
 
 I might have NO DNI, but it is very very specific so It doesn't count as a set DNI. I WOULDN'T interact with my blacklist in ANY WAY, So please DNI too LMAOLMAOㅤㅤㅤ
 
