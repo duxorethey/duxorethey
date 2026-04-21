@@ -17,4 +17,4 @@ I ***LOVE*** that HC hybrid **+** obsessive hybrid ship, if you know what I mean
 I might have NO DNI, but it is very very specific so it doesn't count as a well-set and mentionable DNI. I WOULDN'T interact with my blacklist in ANY WAY, So please DNI too LMAOLMAO
 
 ㅤㅤ
-**Blacklist:ㅤㅤ@fatalwhimsy @fieldofsunflowers @iloveemydearazurewrath**ㅤㅤㅤdon't ask why are you in here, I have my particular reasons to get you here ^_^)
+**Blacklist:ㅤㅤ@fatalwhimsy @fieldofsunflowers @iloveemydearazurewrath** **@SuicidalAngel**ㅤㅤㅤdon't ask why are you in here, I have my particular reasons to get you here ^_^)
