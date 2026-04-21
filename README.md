@@ -8,7 +8,7 @@ You can call me ***VEWN*** or ***FEI*** u can also call me ***DUXO***ㅤㅤㅤI 
 C * H encouraged and comfort. w2i if you wanna interact! I will answer as soon as I can!! 
 
 I ***LOVE*** that HC hybrid **+** obsessive hybrid ship, if you know what I mean coughh 👀👀, b-warriors might be burning me down right now. ALSO SQUIDSWAG and CHUFIES = literALLY ME and mY HUBBY we ARE SO THEM. 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**ALSO AQUINO AND DUXO ⇩⇩⇩⇩⇩⇩**
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**ALSO AQUINO AND DUXO ⇩⇩⇩⇩⇩⇩**
 
 <img src="https://u.cubeupload.com/Dagasi/3dgifmaker79872.gif" width="560">ㅤ
 
