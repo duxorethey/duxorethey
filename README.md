@@ -12,13 +12,19 @@ You can call me ***VEWN*** or ***FEI*** u can also call me ***DUXO***ㅤㅤㅤI 
 C * H encouraged and comfort. w2i if you wanna interact! I will answer as soon as I can!! 
 
 I ***LOVE*** that HC hybrid **+** obsessive hybrid ship, if you know what I mean coughh 👀👀, b-warriors might be burning me down right now. ALSO SQUIDSWAG and CHUFIES = literALLY ME and mY HUBBY we ARE SO THEM. 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**ALSO AQUINO AND DUXO ⇩⇩⇩⇩⇩⇩**
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**ALSO AQUINO AND DUXO ⇩⇩⇩⇩⇩⇩**
 
 <img src="https://u.cubeupload.com/Dagasi/3dgifmaker79872.gif" width="560">ㅤ
 
 **mE AND MY HUSBANDDD!!! (I'm fucking going insane)ㅤ🎉🎉🎊🎉🎊🎊**
 
-[wip matching rentry](https://rentry.co/theperfectduo)ㅤㅤ**MISC**ㅤㅤ[my URL claim list](https://rentry.co/meagerness)
+♡ **𓎟𓎠 BYI 𓎠𓎟** ♡
+
+I can be VERY unstable when it comes to jokes, by the way. These jokes aren't meant to be taken seriously or to offend anyone. I REALLY like matching, I hardly ever check DC, so if you message me and I don't reply, I'm sorry!
+ㅤㅤㅤㅤㅤㅤㅤㅤ
+**NOTE:** If you don't like **Oddysey Duo**: No problem, I respect your tastes. Just PLEASE, don't insult others, thanks! (^_^ 
+
+♡ **𓎟𓎠 BLACKLIST 𓎠𓎟** ♡
 
 I might have NO DNI, but it is very very specific so it doesn't count as a well-set and mentionable DNI. I WOULDN'T interact with my blacklist in ANY WAY, So please DNI too LMAOLMAO
 
