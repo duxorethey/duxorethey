@@ -29,4 +29,4 @@ I can be VERY unstable when it comes to jokes, by the way. These jokes aren't me
 I might have NO DNI, but it is very very specific so it doesn't count as a well-set and mentionable DNI. I WOULDN'T interact with my blacklist in ANY WAY, So please DNI too LMAOLMAO
 
 ㅤㅤ
-**Blacklist:ㅤㅤ@fatalwhimsy @fieldofsunflowers @iloveemydearazurewrath** **@SuicidalAngel**ㅤㅤㅤdon't ask why are you in here, I have my particular reasons to get you here ^_^)
+**Blacklist:ㅤㅤ@KnightParadigm @fieldofsunflowers @iloveemydearazurewrath** **@SuicidalAngel**ㅤㅤㅤdon't ask why are you in here, I have my particular reasons to get you here ^_^)
